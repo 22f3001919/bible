@@ -67,6 +67,17 @@ Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv
 #### Paul's Second Missionary Journey
 ![Paul's Second Missionary Journey](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_44_08.jpg)
 Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_44_08.jpg)
+### Facts of interest
+#### The World of A.D. 62
+[https://www.runningreality.org/#01/01/60&30.01393,37.33639&zoom=4](https://www.runningreality.org/#01/01/60&30.01393,37.33639&zoom=4)
+- Part of the Roman Empire
+- Colossae was a small town in Phrygia, a province of Asia Minor (modern Turkey).
+- Located on the main road from Ephesus to the East.
+- The city was known for its wool and dyeing industry.
+- Colossae famaous for its theraputic waters and cyclamen flowers.
+- The city was destroyed by an earthquake in A.D. 60, and the letter was written before that.
+- 2000 Jewish families from Babylon were settled by Selucid ruler Antiochus III in Phrygia.
+- Prominent dieties were Cybele (mother goddess) and Sabzios (sky god).
 > #### Acts 18:19
 > 19. And they came to **Ephesus**, and he left them there, but he himself went into the synagogue and reasoned with the Jews.
 ### Motivation for writing this letter: to combat false teaching
