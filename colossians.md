@@ -76,8 +76,9 @@ Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv
 - The city was known for its wool and dyeing industry.
 - Colossae famaous for its theraputic waters and cyclamen flowers.
 - The city was destroyed by an earthquake in A.D. 60, and the letter was written before that.
-- 2000 Jewish families from Babylon were settled by Selucid ruler Antiochus III in Phrygia.
+- 2000 Jewish families from Babylon were settled by Selucid ruler Antiochus III (ca. 241 - 187 BC) in Phrygia. (mentioned in Josephus, Book 12, Chapter 3 and Maccabees 1:10)
 - Prominent dieties were Cybele (mother goddess) and Sabzios (sky god).
+- Heresies such a works of righteousness, angel worship, ritualism, etc were present.
 > #### Acts 18:19
 > 19. And they came to **Ephesus**, and he left them there, but he himself went into the synagogue and reasoned with the Jews.
 ### Motivation for writing this letter: to combat false teaching
