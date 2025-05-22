@@ -49,8 +49,8 @@ All three letters sent with Tychicus and Onesimus.
 > [!NOTE]
 > Letter to Laodicea is lost. Might have been part of circular letters to the churches in Asia Minor, like Ephesians.
 #### Ephesus 62 AD
-![Ephesus AD 62](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_48_01.jpg)
-Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_48_01.jpg)
+![Ephesus AD 62](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_49_01.jpg))
+Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_49_01.jpg)
 #### Colossae 62 AD
 ![Colossae AD 62](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_51_01.jpg)
 Image from [Blue Letter Bible](https://www.blueletterbible.org/assets/images/esv-study-bible/big/map_48_01.jpg)
